@@ -1,4 +1,4 @@
-# 
+# advanced bot de sniper MEV herramientas es el mejor bot de sniper MEV herramientas con detección de gems de baja capitalización y ejecución de ataque sandwich. Seguro, confiable y
 
 
 
